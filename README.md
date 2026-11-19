@@ -7,7 +7,7 @@
 |---|---|---|
 | Ruan Ribeiro | 567693 | 2TDSPA |
 
-**Vídeo pitch:** _colar aqui o link do YouTube (não listado)_
+**Vídeo pitch:** https://youtu.be/wZetgJfhDLk
 
 ---
 
